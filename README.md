@@ -1,0 +1,1 @@
+En conclusión, este informe revela que el crecimiento del uso de internet en Argentina ha estado predominantemente impulsado por la telefonía móvil, en lugar de por el acceso a internet en los hogares.
